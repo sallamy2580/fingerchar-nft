@@ -49,8 +49,7 @@ admin  12345678
 ![FingerNFT](https://cdn.fingerchar.com/images/version_en.jpeg)
 
 ### Contact us
-* Tel: 13459461911
-* Telegram: [https://t.me/fingernft1](https://t.me/fingernft1)
+* Telegram: [https://t.me/superpolaris)
 
 #### WeChat
 
